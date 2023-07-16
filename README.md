@@ -1,2 +1,1 @@
-# garden
-Project for supporting garden
+Garden calculations
