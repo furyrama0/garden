@@ -1,1 +1,1 @@
-pair silly show describe smoke route rule heading softly hole easy look talk bowl necessary
+rose die mile name pair parent write life attention feathers spite avoid television standard oxygen
