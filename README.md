@@ -1,1 +1,1 @@
-rose die mile name pair parent write life attention feathers spite avoid television standard oxygen
+arrange consist continent hollow pour speed cowboy like instant ants east steam ordinary previous practical
