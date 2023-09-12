@@ -1,1 +1,1 @@
-man ordinary farm driven near calm sent anyway load essential pool turn stopped lack whatever
+chance success stairs kill receive studying herd sale respect border picture ordinary friend thou sea
