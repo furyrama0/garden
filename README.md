@@ -1,1 +1,1 @@
-if respect young soldier operation afternoon wave funny can pain tongue getting chest means caught
+mice careful lost consonant longer fighting see way shine local pleasure noun minute spirit plain
