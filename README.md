@@ -1,1 +1,1 @@
-mice careful lost consonant longer fighting see way shine local pleasure noun minute spirit plain
+oxygen several under easier blue quarter nearly dead some minerals sudden tried central gate continued
