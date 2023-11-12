@@ -1,1 +1,1 @@
-except care finally traffic favorite ruler class entire grandmother move deer nine determine cast popular
+wish sat statement garage scene tax heart loose nice pupil machinery became alone rest plural
