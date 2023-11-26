@@ -1,1 +1,1 @@
-city quarter slave rule two beauty belong desert sides musical having elephant thin hard once
+him basket living ruler pay curve turn ranch bush captured telephone win famous basket combine
