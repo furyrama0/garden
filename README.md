@@ -1,1 +1,1 @@
-atom reader helpful cutting grandfather doctor mean two palace tight brother joy poetry travel ring
+weather it greater graph mighty perhaps mad off affect stove hospital parallel stood tool cold
